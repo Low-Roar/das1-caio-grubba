@@ -25,4 +25,4 @@ Ainda não possuo um candidato específico para uma área de interesse.
 
 Executa a solução com o problema e que permite evoluções
 
-Li e utilizei a estrutura solicitada
+
